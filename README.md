@@ -6,4 +6,4 @@ Our project will cover the effects of climate change on agriculture and other in
 
 Tracy Lam
 tracy_lam@redlands.com
-Our project 
+My group's project will focus on climate change in California and potentially an east coast state to compare how the two coasts are impacted by climate change.
